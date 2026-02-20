@@ -8,7 +8,7 @@ A Scientist- Intrigued by Biological Sciences. Passionate about Early detection 
 
 ## ✨ Aspire to
 
-I love- working in Gene therapy & develop therpeutics | Become a successful Scientific Communicator | Entreprenuer by @2030 ⭐
+🧬working in Gene therapy & develop therpeutics | 🎯Become a successful Scientific Communicator | Entreprenuer by @2030 ⭐
 
 ## 🎓 Education
 
