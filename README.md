@@ -13,7 +13,7 @@ I love- working in Gene therapy & develop therpeutics | Become a successful Scie
 ## 🎓 Education
 
 ### Post Graduate studies
-**Master of Science in Molecular Biology & Human Genetics** - Manipal School of Life Sciences, MAHE , Manipal, India- 2021-2023
+- **Master of Science in Molecular Biology & Human Genetics** - Manipal School of Life Sciences, MAHE , Manipal, India- 2021-2023
 
 ### Under Graduate studies
 - **Bachelor of Scince in Chemistry, Botany & Zoology** - Sir C.R.Reddy Autonomous College, Adikavi Nannayya University - Eluru, India - 2019-2021
